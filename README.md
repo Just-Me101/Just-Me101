@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Just-Me101
+- 👀 I’m interested in learning new stuffs
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate with great minds
+- 📫 How to reach me - sms or social media
